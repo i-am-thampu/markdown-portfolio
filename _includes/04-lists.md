@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+Favourite Places to eat
+-KOCO
+-Adaminte Chayakada
+-Thali Restaurant
